@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **lucasandradezilio@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1GX9Hf4pkq6kYqHTNCxF3hJ7vM8ckL21jf6BF_ZQt53w/edit?tab=t.0](https://docs.google.com/document/d/1GX9Hf4pkq6kYqHTNCxF3hJ7vM8ckL21jf6BF_ZQt53w/edit?tab=t.0)
+- 📄 Know about my experiences [https://docs.google.com/document/d/1CMV69ZaqOh5PLEx_8rcl4h8_RtAwRNRAg--g-4GlG68/edit?tab=t.0]
 
 - ⚡ Fun fact **I’m passionate about entrepreneurship and I love Pokémon**
 
